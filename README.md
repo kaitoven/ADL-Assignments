@@ -1,0 +1,1 @@
+# Advanced Deep Learning is such a great and practical course — it really opened the door for me in the field of deep learning. I didn’t get full marks on the homework, which is a bit of a pity, but the experience and impact were truly one of a kind. Highly recommend this course! Here’s my assignment (with a few regrets), just for reference.
